@@ -7,3 +7,9 @@ Meu nome é Samuel
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvido
 
 ![](https://media1.tenor.com/m/rNGcuCXUhucAAAAC/cr7.gif)
+
+Você pode entrar em contato comigo 📫
+
+alurastartestudante@email.com
+
+@alurastartestudante
